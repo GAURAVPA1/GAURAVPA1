@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GAURAVPA1
-- 👀 I’m interested in work with 
+- 👀 I’m interested to learn new technology..
 - 🌱 I’m currently learning java and web development 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @gaurav_prajapat._
